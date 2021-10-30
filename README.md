@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BumisBad
-- 👀 I’m interested in basketball, white hat hacking (which I need to learn), and making/playing video games!
+- 👀 I’m interested in basketball, white hat hacking (hacking but it's legal) (which I need to learn), and making/playing video games!
 - 🌱 I’m currently learning how to make a game on unity
 - 💞️ I’m looking to collaborate on a texture pack on minecraft (I have only one year of experience but I would say I do good work, a resent pack I made got 200 something views on yt)
 - 📫 How to reach me: discord (BummyBoi#7733)
